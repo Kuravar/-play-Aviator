@@ -1,2 +1,1 @@
-# -play-Aviator
- play Aviator
+It’s hard to find someone who has never gambled, and it’s great that the gambling industry is now providing more and more interesting and unique games with transparent and fair conditions. What about the Aviator? At link https://aviatorr.in/aviator-1win/  you can find more information, as well as learn more about the 1win online casino, where you can play Aviator.
